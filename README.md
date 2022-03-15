@@ -2,5 +2,5 @@
 - 👀 I’m interested in learning more of programming and about the comunity
 - 🌱 I’m currently learning how to program 
 - 💞️ I’m looking to collaborate on everything, seems fun
-- 📫 How to reach me ...  by email (herriqueleao@gmail.com) 
+- 📫 How to reach me ...  by email (herriqueavelar@gmail.com) 
 - I just hope to learn more, thats all
